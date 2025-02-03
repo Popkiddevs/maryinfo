@@ -97,7 +97,7 @@
 ## CONTACT MARY HERE
   DM FOR JOKES
 
-   <a href="https://i.ibb.co/KcHJpcsZ/IMG-20250203-WA0063.jpg"><img title="CONTACT-MARY" src="https://img.shields.io/badge/CONTACT-MARY-h?color=black&style=for-the-badge&logo=audi" width="240" height="45.45"/></a></p>
+   <a href="https://wa.me/+254711315770"><img title="CONTACT-MARY" src="https://img.shields.io/badge/CONTACT-MARY-h?color=black&style=for-the-badge&logo=audi" width="240" height="45.45"/></a></p>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
